@@ -13,5 +13,5 @@ I am a **Propulsion Systems Engineer** working at a Japanese startup. I am passi
 - Ask me about combustion, rocket propulsion, structural analysis, and corgis!
 
 ### 📬 Connect with Me
-- 💼 [LinkedIn](www.linkedin.com/in/syamantak-nath)
+- 💼 [LinkedIn](https://linkedin.com/in/syamantak-nath)
 
